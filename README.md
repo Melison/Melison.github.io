@@ -1,2 +1,2 @@
 # Melison.github.io
-I am just a posted blog.
+I am just a deep-thinking and read-worthy blog.
